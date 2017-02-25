@@ -1,1 +1,0 @@
-# Mingela.github.io
